@@ -1,5 +1,9 @@
 # Should I invest in real estate to address the challenge of negative interest rates?
 
+![Investments in Real Estate](https://live.staticflickr.com/5154/5857662950_19e23b3bef_b.jpg)
+
+*Source: https://live.staticflickr.com/5154/5857662950_19e23b3bef_b.jpg*
+
 ## Introduction
 
 Economies world-wide are facing historically low, or even negative interest rates. Especially in Europe, and in particular in Germany the question that many people ask themselves is: Where should I invest my money? Investing in real estate is an adequate option, but what are key factors that influence the price of a house? What is a fair price? In which region should I invest and what are the dominant features that influence the house prices most?
